@@ -9,7 +9,7 @@
        
 
     
-    I'm a Undergraduate, Mechatronics Engineer.
+    I'm  Undergraduate, Mechatronics Engineer.
 
     I'm  looking forward to gaining more knowledge.
 ### Connect with Me :
